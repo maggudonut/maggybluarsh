@@ -1,8 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓴𝓲𝓼𝓼 𝓶𝒆 𝓹𝓵𝒆𝓪𝓼𝒆
 <p align="center"> 
         &nbsp;&nbsp;
-  
-<p align="center"> <img width="768" height="584" alt="Image" src="https://files.catbox.moe/ehhhh3.png" /><p align="center">   &nbsp;&nbsp;
 
 ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀   ⠀  ✎ᝰ⠀[ATABOOK](https://maggy.atabook.org/) &nbsp; [STRAWPAGE](https://bluarsh.straw.page) &nbsp; [STEAM](https://steamcommunity.com/id/fatpuzo/)     ᝰ.ᐟ 
 
